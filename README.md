@@ -1,2 +1,2 @@
-# Hyper-Potions---Friends-
+# Hyper-Potions - Friends
 Sound Scape Song
